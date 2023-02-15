@@ -15,5 +15,4 @@ Inizio sito per la pulizia etnica:
 - [ ] [Memoria e oblio. Pulizia etnica e genocidio in Bosnia ed ...](https://www.twai.it/articles/srebrenica-genocidio-bosnia-memoria/)
 - [ ] [Guerre jugoslave - Wikipedia](https://it.wikipedia.org/wiki/Guerre_jugoslave)
 - [ ] [Dissoluzione della Jugoslavia - Wikipedia](https://it.wikipedia.org/wiki/Dissoluzione_della_Jugoslavia)
-- [ ] [Guerra civile serba - Skuola.net](https://www.skuola.net/storia-contemporanea/guerra-civile-serba.html)
 - [ ] [Perché ricordare il massacro di Srebrenica, venticinque anni ...](https://www.internazionale.it/notizie/tom-mockaitis/2020/07/10/srebrenica-anniversario-venticinque)
