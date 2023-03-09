@@ -9,9 +9,9 @@ Inizio sito per la pulizia etnica:
 * (magari php?)
 * finire progetto
 ## Link per info:
-- [ ] [Pulizia etnica e genocidio nei Balcani - Gariwo](https://it.gariwo.net/educazione/approfondimenti/pulizia-etnica-e-genocidio-nei-balcani-3499.html) 
-- [ ] [PMLI La pulizia etnica dei nazionalisti serbi e croati nei Balcani](http://www.pmli.it/puliziaetnicabalcani.htm)
-- [ ] [Pulizia etnica nell'ex-Jugoslavia - Giorgio Perlasca](https://www.giorgioperlasca.it/per-non-dimenticare/ex-jugoslavia/)
+- [x] [Pulizia etnica e genocidio nei Balcani - Gariwo](https://it.gariwo.net/educazione/approfondimenti/pulizia-etnica-e-genocidio-nei-balcani-3499.html) 
+- [x] [PMLI La pulizia etnica dei nazionalisti serbi e croati nei Balcani](http://www.pmli.it/puliziaetnicabalcani.htm)
+- [x] [Pulizia etnica nell'ex-Jugoslavia - Giorgio Perlasca](https://www.giorgioperlasca.it/per-non-dimenticare/ex-jugoslavia/)
 - [ ] [Memoria e oblio. Pulizia etnica e genocidio in Bosnia ed ...](https://www.twai.it/articles/srebrenica-genocidio-bosnia-memoria/)
 - [ ] [Guerre jugoslave - Wikipedia](https://it.wikipedia.org/wiki/Guerre_jugoslave)
 - [ ] [Dissoluzione della Jugoslavia - Wikipedia](https://it.wikipedia.org/wiki/Dissoluzione_della_Jugoslavia)
