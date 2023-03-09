@@ -60,6 +60,8 @@ Nel luglio 1995, mentre l’Europa si preparava alle vacanze estive, in Bosnia E
 
 Coniato nel 1944 per descrivere le terribili sorti della popolazione ebraica durante la Seconda guerra mondiale, il termine ‘genocidio’ indica la metodica distruzione di gruppo nazionale, etnico, razziale o religioso. Tutti, nel mondo occidentale e in Europa in particolare, convennero che tali atrocità non sarebbero mai più dovute accadere. Che tale odio, e tale violenza, fossero disumani. Qualche decennio dopo, però, quando la Jugoslavia di Josip Broz, meglio noto come Tito, cominciò a barcollare e i nazionalismi ad avvelenare i cuori e le menti, l’Europa chiuse un occhio. Poi anche l’altro.
 
+Poiché la politica si prostra spesso all’adagio machiavelliano del “fine giustifica i mezzi”, insieme ai bombardamenti, la pulizia etnica divenne il mezzo principale per eliminare il problema. L’istituzione di campi di detenzione, i massacri e le stragi continuarono senza interruzioni, dalla fine del 1991 – quando i primi carri armati serbi entrarono in Bosnia – alla firma dell’Accordo di pace di Dayton, nel novembre 1995. L’inizio ufficiale della guerra in Bosnia è tuttavia datato 6 aprile 1992, giorno in cui la Comunità Europea riconobbe ufficialmente l’indipendenza degli stati di Slovenia, Croazia, e Bosnia ed Erzegovina. Iniziarono così i bombardamenti e l’assedio di Sarajevo, un tempo emblema della coesistenza tra popoli poi divenuta simbolo di distruzione, nonché vittima dell’assedio più lungo della storia moderna, durato più di mille giorni.
+
 Fonte: flickr.com
 
 Fonte: zdnet.com
