@@ -54,7 +54,7 @@ In questo quadro non vanno dimenticate le proteste contro la corruzione e la dis
 >Prima di intraprendere le vie legali, i militari tenteranno la via della conciliazione con il governo. Il tema, tuttavia, resta molto delicato, soprattutto dopo la sentenza della Corte europea dei diritti dell’uomo dello scorso settembre, che ha stabilito in ultima istanza che il comandante del Dutchbat “non deve essere processato per Srebrenica e il comportamento dei caschi blu”. 
 
 
-# NOTE
+# NOTE TWAI
 
 Nel luglio 1995, mentre l’Europa si preparava alle vacanze estive, in Bosnia Erzegovina continuava una terribile guerra, l’assedio di Sarajevo straziava la città, e un genocidio si compiva alle porte di casa nostra. 
 
@@ -67,3 +67,5 @@ Il genocidio di Srebrenica non fu un incidente: esso fu l’attuazione di un pia
 Fonte: flickr.com
 
 Fonte: zdnet.com
+
+# NOTE WIKIPEDIA
