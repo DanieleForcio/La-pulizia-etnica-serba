@@ -1,5 +1,6 @@
 # PMLI MERDA
 /////////////////////////////////////////
+
 Le spinte nazionaliste dei dirigenti delle repubbliche federate alla fine degli anni '80, avallate dalle potenze europee, che porteranno alla disgregazione della federazione jugoslava sono accompagnate da una criminale campagna nazionalista contro le minoranze presenti nelle repubbliche; la proclamazione degli Stati autonomi è preceduta e seguita in molti casi da una criminale politica nazista definita "pulizia etnica" per rendere omogenea con la forza, il terrore e i massacri la popolazione dei territori controllati.
 
 Principali protagonisti di tale politica sono i nazionalisti serbi capeggiati dal rinnegato e fascista Milosevic e il suo compare croato Tudjman. I due si contendono il primato di chi ha innescato per primo su larga scala le operazioni di "pulizia etnica". L'indipendenza della Croazia è segnata dalla caccia alla minoranza serba nella repubblica; nelle zone della Slavonia e delle Krajine i serbi sono in maggioranza e appoggiati dall'esercito di Belgrado cacciano circa 80 mila croati. 
