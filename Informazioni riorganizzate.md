@@ -52,3 +52,11 @@ Un fattore di instabilità è stato dato anche dalla pubblicazione dei dati del 
 In questo quadro non vanno dimenticate le proteste contro la corruzione e la disoccupazione e il pericolo del terrorismo islamico, che sfrutta il malcontento dei giovani per attrarre nuove reclute: non è un caso, infatti, che molti foreign fighter che hanno scelto di seguire l’Isis provenissero proprio da questa regione.
 
 >Prima di intraprendere le vie legali, i militari tenteranno la via della conciliazione con il governo. Il tema, tuttavia, resta molto delicato, soprattutto dopo la sentenza della Corte europea dei diritti dell’uomo dello scorso settembre, che ha stabilito in ultima istanza che il comandante del Dutchbat “non deve essere processato per Srebrenica e il comportamento dei caschi blu”. 
+
+
+# NOTE
+
+Nel luglio 1995, mentre l’Europa si preparava alle vacanze estive, in Bosnia Erzegovina continuava una terribile guerra, l’assedio di Sarajevo straziava la città, e un genocidio si compiva alle porte di casa nostra. 
+
+Fonte: flickr.com
+Fonte: zdnet.com
