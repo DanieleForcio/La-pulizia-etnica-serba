@@ -59,4 +59,5 @@ In questo quadro non vanno dimenticate le proteste contro la corruzione e la dis
 Nel luglio 1995, mentre l’Europa si preparava alle vacanze estive, in Bosnia Erzegovina continuava una terribile guerra, l’assedio di Sarajevo straziava la città, e un genocidio si compiva alle porte di casa nostra. 
 
 Fonte: flickr.com
+
 Fonte: zdnet.com
