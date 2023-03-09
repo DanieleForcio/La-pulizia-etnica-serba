@@ -69,3 +69,5 @@ Fonte: flickr.com
 Fonte: zdnet.com
 
 # NOTE WIKIPEDIA
+
+** immaginee ** La sede del parlamento della Bosnia ed Erzegovina dopo essere stata colpita dai carri armati serbi durante l'assedio del 1992
