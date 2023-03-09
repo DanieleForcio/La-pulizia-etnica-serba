@@ -58,6 +58,8 @@ In questo quadro non vanno dimenticate le proteste contro la corruzione e la dis
 
 Nel luglio 1995, mentre l’Europa si preparava alle vacanze estive, in Bosnia Erzegovina continuava una terribile guerra, l’assedio di Sarajevo straziava la città, e un genocidio si compiva alle porte di casa nostra. 
 
+Coniato nel 1944 per descrivere le terribili sorti della popolazione ebraica durante la Seconda guerra mondiale, il termine ‘genocidio’ indica la metodica distruzione di gruppo nazionale, etnico, razziale o religioso. Tutti, nel mondo occidentale e in Europa in particolare, convennero che tali atrocità non sarebbero mai più dovute accadere. Che tale odio, e tale violenza, fossero disumani. Qualche decennio dopo, però, quando la Jugoslavia di Josip Broz, meglio noto come Tito, cominciò a barcollare e i nazionalismi ad avvelenare i cuori e le menti, l’Europa chiuse un occhio. Poi anche l’altro.
+
 Fonte: flickr.com
 
 Fonte: zdnet.com
