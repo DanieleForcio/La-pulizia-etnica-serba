@@ -62,6 +62,8 @@ Coniato nel 1944 per descrivere le terribili sorti della popolazione ebraica dur
 
 Poiché la politica si prostra spesso all’adagio machiavelliano del “fine giustifica i mezzi”, insieme ai bombardamenti, la pulizia etnica divenne il mezzo principale per eliminare il problema. L’istituzione di campi di detenzione, i massacri e le stragi continuarono senza interruzioni, dalla fine del 1991 – quando i primi carri armati serbi entrarono in Bosnia – alla firma dell’Accordo di pace di Dayton, nel novembre 1995. L’inizio ufficiale della guerra in Bosnia è tuttavia datato 6 aprile 1992, giorno in cui la Comunità Europea riconobbe ufficialmente l’indipendenza degli stati di Slovenia, Croazia, e Bosnia ed Erzegovina. Iniziarono così i bombardamenti e l’assedio di Sarajevo, un tempo emblema della coesistenza tra popoli poi divenuta simbolo di distruzione, nonché vittima dell’assedio più lungo della storia moderna, durato più di mille giorni.
 
+Il genocidio di Srebrenica non fu un incidente: esso fu l’attuazione di un piano concepito da leader nazionalisti per spartirsi la Bosnia ed Erzegovina, eliminando il problema tramite la pulizia etnica. Il genocidio di Srebrenica, come già detto, rappresentò solo il culmine di una violenza disumana e brutale, perpetrata contro il popolo bosniaco ininterrottamente per quattro lunghissimi anni. È solo attraverso una cosciente presa di responsabilità da parte delle élite politiche e degli stati coinvolti che le generazioni future, in Bosnia ed Erzegovina ma non solo, potranno liberarsi dall’odio, dalla paura e dalla schiavitù del nazionalismo. Solo così potranno ricordare il passato, liberandosi del suo enorme peso, e guardare al futuro. 
+
 Fonte: flickr.com
 
 Fonte: zdnet.com
