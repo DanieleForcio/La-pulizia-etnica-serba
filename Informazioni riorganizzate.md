@@ -71,3 +71,6 @@ Fonte: zdnet.com
 # NOTE WIKIPEDIA
 
 ** immaginee ** La sede del parlamento della Bosnia ed Erzegovina dopo essere stata colpita dai carri armati serbi durante l'assedio del 1992
+
+Diverse le motivazioni che sono alla base di questi conflitti. La più importante è il nazionalismo imperante nelle diverse repubbliche fra la fine degli anni ottanta e l'inizio degli anni novanta (in particolare in Serbia, Croazia e Kosovo, ma in misura minore anche in Slovenia e nelle altre regioni della Federazione), con una propaggine finale nel XXI secolo del conflitto nella Repubblica di Macedonia del 2001.
+
