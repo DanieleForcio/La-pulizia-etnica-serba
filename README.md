@@ -14,6 +14,5 @@ Inizio sito per la pulizia etnica:
 - [x] [Pulizia etnica nell'ex-Jugoslavia - Giorgio Perlasca](https://www.giorgioperlasca.it/per-non-dimenticare/ex-jugoslavia/)
 - [x] [Memoria e oblio. Pulizia etnica e genocidio in Bosnia ed ...](https://www.twai.it/articles/srebrenica-genocidio-bosnia-memoria/)
 - [ ] [Guerre jugoslave - Wikipedia](https://it.wikipedia.org/wiki/Guerre_jugoslave)
-- [ ] [Dissoluzione della Jugoslavia - Wikipedia](https://it.wikipedia.org/wiki/Dissoluzione_della_Jugoslavia)
 - [ ] [Perché ricordare il massacro di Srebrenica, venticinque anni ...](https://www.internazionale.it/notizie/tom-mockaitis/2020/07/10/srebrenica-anniversario-venticinque)
 - [ ] Mothers of Srebrenica
